@@ -1,0 +1,70 @@
+# Marilyn Manson – スウィート・ドリームス
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+Sweet dreams are
+made of this
+Who am I to disagree
+Travel the world
+and the seven seas
+Everybody's looking
+for something
+Some of them want
+to use you
+Some of them want
+to get used by you
+Some of them want
+to abuse you
+Some of them want
+to be abused
+<♪>
+Sweet dreams are
+made of this
+Who am I to disagree
+Travel the world
+and the seven seas
+Everybody's looking
+for something
+Some of them want
+to use you
+Some of them want
+to get used by you
+Some of them want
+to abuse you
+Some of them want
+to be abused
+<♪>
+I wanna use you
+and abuse you
+I wanna know
+what's inside you
+movin' on movin' on
+movin' on movin' on
+movin' on movin' on
+movin' on
+<♪>
+Sweet dreams are
+made of this
+Who am I to disagree
+Travel the world
+and the seven seas
+Everybody's looking
+for something
+Some of them want
+to use you
+Some of them want
+to get used by you
+Some of them want
+to abuse you
+Some of them want
+to be abused
+I'm gonna use you
+and abuse you
+I'm gonna know
+what's inside
+Gonna use you
+and abuse you
+I'm gonna know
+what's inside you
+```
